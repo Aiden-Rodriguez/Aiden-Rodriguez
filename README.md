@@ -1,0 +1,2 @@
+- Hi, I’m Aiden Rodriguez
+- How to reach me a.woodenrod@gmail.com
